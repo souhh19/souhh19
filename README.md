@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @souhh19
-- 👀 I’m interested in every thing in programation  
+- 👋 Hi, I’m @souhaib.br
+- 👀 I’m interested in every thing in programing
 - 🌱 I’m currently learning how to be human
 - 📫 How to reach me : be electronic
